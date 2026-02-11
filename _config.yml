@@ -1,0 +1,12 @@
+title: Vizbull Blog
+description: Building Vizbull in public — SaaS, AI, Collage Maker
+url: "https://vizbull.github.io"
+theme: minima
+
+plugins:
+  - jekyll-feed
+  - jekyll-seo-tag
+
+markdown: kramdown
+permalink: /:title/
+
