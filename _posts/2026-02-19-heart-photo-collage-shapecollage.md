@@ -86,7 +86,7 @@ If you're wondering how to **put picture in heart shape online free**, the proce
 
 You can browse all heart-based layouts here:
 
-👉 https://vizbull.com/tools/collage-layout/tags/heart
+👉 [Heart Based Layouts](https://vizbull.com/tools/collage-layout/tags/heart)
 
 ---
 
@@ -98,7 +98,7 @@ Here are some of the most beautiful heart shaped picture collage layouts you can
 
 ## ❤️ Heart Blocks Mixed Layout
 
-https://vizbull.com/tools/collage-layout/heart-blocks-mixed-layout-soft-story-driven-4vonvh
+[Heart Blocks Mixed Layout](https://vizbull.com/tools/collage-layout/heart-blocks-mixed-layout-soft-story-driven-4vonvh)
 
 A soft story-driven layout combining different region sizes.  
 Perfect for romantic storytelling collages.
@@ -107,7 +107,7 @@ Perfect for romantic storytelling collages.
 
 ## 💕 Pastel Trio Hearts Layout
 
-https://vizbull.com/tools/collage-layout/pastel-trio-hearts-layout-soft-love-composition-7064d01
+[Pastel Trio Hearts Layout](https://vizbull.com/tools/collage-layout/pastel-trio-hearts-layout-soft-love-composition-7064d01)
 
 Three interconnected hearts.  
 Ideal for couple + baby or family compositions.
@@ -116,7 +116,7 @@ Ideal for couple + baby or family compositions.
 
 ## 💞 Three Heart Harmony Layout
 
-https://vizbull.com/tools/collage-layout/three-heart-harmony-layout-love-family-composition-l97tr7i
+[Three Heart Harmony Layout](https://vizbull.com/tools/collage-layout/three-heart-harmony-layout-love-family-composition-l97tr7i)
 
 A love-family focused heart shaped picture frame collage.
 
@@ -124,7 +124,7 @@ A love-family focused heart shaped picture frame collage.
 
 ## ♾ Stacked Heart Infinity Layout
 
-https://vizbull.com/tools/collage-layout/stacked-heart-infinity-layout-vertical-love-design-rrxoqfi
+[Stacked Heart Infinity Layout](https://vizbull.com/tools/collage-layout/stacked-heart-infinity-layout-vertical-love-design-rrxoqfi)
 
 Vertical design combining infinity symbolism with heart shapes.
 
@@ -132,7 +132,7 @@ Vertical design combining infinity symbolism with heart shapes.
 
 ## 🌸 Layered Hearts Focus Collage
 
-https://vizbull.com/tools/collage-layout/layered-hearts-focus-collage-02nujsn
+[Layered Hearts Focus Collage](https://vizbull.com/tools/collage-layout/layered-hearts-focus-collage-02nujsn)
 
 Beautiful layered effect.  
 Works well as a heart collage frame centerpiece.
@@ -141,7 +141,7 @@ Works well as a heart collage frame centerpiece.
 
 ## 🧩 Heart Puzzle Layout
 
-https://vizbull.com/tools/collage-layout/heart-puzzle-looplc
+[Heart Puzzle Layout](https://vizbull.com/tools/collage-layout/heart-puzzle-looplc)
 
 Creative heart sections styled like puzzle pieces.
 
@@ -149,7 +149,7 @@ Creative heart sections styled like puzzle pieces.
 
 ## 🎨 Organic Heart Mosaic Collage
 
-https://vizbull.com/tools/collage-layout/organic-heart-mosaic-collage-ahc44v
+[Organic Heart Mosaic Collage](https://vizbull.com/tools/collage-layout/organic-heart-mosaic-collage-ahc44v)
 
 A full mosaic heart collage using many small images.
 
@@ -159,7 +159,7 @@ Perfect if you want a **custom heart photo collage** with dozens of memories.
 
 ## 💎 Heart Diamond Harmony Collage
 
-https://vizbull.com/tools/collage-layout/heart-diamond-harmony-collage-umzhfo
+[Heart Diamond Harmony Collage](https://vizbull.com/tools/collage-layout/heart-diamond-harmony-collage-umzhfo)
 
 Elegant geometric layout blending diamond and heart regions.
 
@@ -167,7 +167,7 @@ Elegant geometric layout blending diamond and heart regions.
 
 ## 💧 Soft Heart Drops Collage
 
-https://vizbull.com/tools/collage-layout/soft-heart-drops-collage-ed8xjrl
+[Soft Heart Drops Collage](https://vizbull.com/tools/collage-layout/soft-heart-drops-collage-ed8xjrl)
 
 Great for soft pastel love heart photo collage themes.
 
@@ -175,7 +175,7 @@ Great for soft pastel love heart photo collage themes.
 
 ## ➤ Chevron Heart Focus Collage
 
-https://vizbull.com/tools/collage-layout/chevron-heart-focus-collage-9q31ucsf
+[Chevron Heart Focus Collage](https://vizbull.com/tools/collage-layout/chevron-heart-focus-collage-9q31ucsf)
 
 Modern and stylish heart shaped collage picture frame.
 
@@ -183,7 +183,7 @@ Modern and stylish heart shaped collage picture frame.
 
 ## 🎀 Romantic Heart Mosaic Layers
 
-https://vizbull.com/tools/collage-layout/layered-hearts-story-collage-heart-focus-collage-romantic-heart-mosaic-love-layers-layout-vvx7j7i
+[Romantic Heart Mosaic Layers](https://vizbull.com/tools/collage-layout/layered-hearts-story-collage-heart-focus-collage-romantic-heart-mosaic-love-layers-layout-vvx7j7i)
 
 Highly detailed layered heart story collage.
 
@@ -193,7 +193,7 @@ Perfect for anniversaries.
 
 ## 🎈 Mickey Style Heart Shape
 
-https://vizbull.com/tools/collage-layout/mickey-mouse-hands-heart-shape-center-image-vh6efqv  
+[Mickey Style Heart Shape](https://vizbull.com/tools/collage-layout/mickey-mouse-hands-heart-shape-center-image-vh6efqv)
 https://vizbull.com/tools/collage-layout/mickey-mouse-hands-heart-shape-99birb
 
 Playful heart shaped picture frame collage.
@@ -205,13 +205,13 @@ Great for kids or family memories.
 ## 💗 Classic Heart Shapes
 
 - Curved Heart:  
-https://vizbull.com/tools/collage-layout/heart-curved-curvy-h5otews
+[Curved Heart](https://vizbull.com/tools/collage-layout/heart-curved-curvy-h5otews)
 
 - Straight Heart:  
-https://vizbull.com/tools/collage-layout/heart-straight-chgg64
+[Straight Heart](https://vizbull.com/tools/collage-layout/heart-straight-chgg64)
 
 - Symmetrical Heart Sections:  
-https://vizbull.com/tools/collage-layout/heart-sections-with-symmetrical-regions-ypm8iv
+[Symmetrical Heart Sections](https://vizbull.com/tools/collage-layout/heart-sections-with-symmetrical-regions-ypm8iv)
 
 ---
 
@@ -325,4 +325,4 @@ Export it.
 Print it.
 Gift it.
 
-Turn your memories into a heart.
+[Turn your memories into a heart](https://vizbull.com/collage-maker).
